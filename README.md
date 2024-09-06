@@ -24,6 +24,7 @@
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/shit.jpg" width="330">
 </div>
+
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ebay.jpg" width="110">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/i%20ate%20it.jpg" width="110">
@@ -56,9 +57,6 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/mayaviolence.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/okamirunning.gif">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/dancinkittycat.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/tailsgetstrolled.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/danckity.gif">
 </div>
 
 <div align="center">
@@ -68,10 +66,12 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/jdzpUSB%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/vD1E33V%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/KT2yq0p%20-%20Imgur.png">
-
 </div>
  
 <div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/dancinkittycat.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/tailsgetstrolled.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/danckity.gif">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/XfHTZjq%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/tS3ec4b%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/1kbaDrI%20-%20Imgur.gif">
@@ -92,8 +92,9 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/0qHnIUg%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ttr1KQJ%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/regular%20show.gif">
+</div>
+
+<div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wowie.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SRRah2p%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/water%20stamp.gif">
-</div>
-
