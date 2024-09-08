@@ -1,6 +1,6 @@
 # GREEDYFEMURBREAKER
 # WulluW
-if i follow ppl on github its for infinte acesss to strawpages ( i get random bursts of art energy )
+if i follow ppl on github its for infinte access to strawpages ( i get random bursts of art energy )
 im gonna tag what art i do with my watermark @WulluW
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
