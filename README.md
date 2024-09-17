@@ -100,3 +100,6 @@ im gonna tag what art i do with my watermark @WulluW
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wowie.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SRRah2p%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/water%20stamp.gif">
+<div align="center">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/79ea08d89034c080a5f4a339e2a98663.jpg" width="330">
+</div>
