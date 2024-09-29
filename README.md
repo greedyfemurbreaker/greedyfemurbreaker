@@ -1,11 +1,11 @@
 # GREEDYFEMURBREAKER
 # WulluW
 
-i spam follow most pony.towners
-***
-i use my watermark @WulluW when i turn in a strawpage sketch
-***
-CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PONY.TOWN INFO
+```diff
+  i spam follow most pony.towners
+- i use my watermark @WulluW when i turn in a strawpage sketch
++ CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PONY.TOWN INFO
+```
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%208.jpg" width="500">
 </div>
