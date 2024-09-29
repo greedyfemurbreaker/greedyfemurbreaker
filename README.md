@@ -1,12 +1,13 @@
 # GREEDYFEMURBREAKER
 # WulluW
+
 i spam follow most pony.towners
 ***
 i use my watermark @WulluW when i turn in a strawpage sketch
 ***
 CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PONY.TOWN INFO
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/6060b63fdef758afce3e490e9e65beca.jpg" width="330">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%208.jpg" width="500">
 </div>
 
 <div align="center">
@@ -26,25 +27,28 @@ CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PON
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/smokin%20bunny.jpg" width="105">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/concept.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/scp%20job.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%207.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%205.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%202.jpg" width="105">
 </div>
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/619395c885bbdaa2e61c306d76ce93ec.jpg" width="330">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20JERK.jpg" width="330">
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ebay.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/i%20ate%20it.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/whack!.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%203.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/DOLCETTO.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%204.jpg" width="110">
 </div>
-
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/TKCwi44%20-%20Imgur.jpg">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ZWI2ldb%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sG8QX6C%20-%20Imgur.jpg">
+</div>
+
+<div align="center">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20INDEPTH.jpg" width="500">
 </div>
 
 <div align="center">
@@ -105,5 +109,5 @@ CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PON
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SRRah2p%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/water%20stamp.gif">
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/79ea08d89034c080a5f4a339e2a98663.jpg" width="330">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/79ea08d89034c080a5f4a339e2a98663.jpg" width="500">
 </div>
