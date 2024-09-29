@@ -1,10 +1,14 @@
 # GREEDYFEMURBREAKER
 # WulluW
-i spam follow ppl on github for infinte access to strawpages ( i get random bursts of art energy )
+i spam follow most pony.towners
+***
+i use my watermark @WulluW when i turn in a strawpage sketch
+***
+CLICK RENTRY FOR MY GENERAL INFO there you will find MY PATREON WHICH HAS MY PONY.TOWN INFO
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/6060b63fdef758afce3e490e9e65beca.jpg" width="330">
 </div>
-im gonna tag what art i do with my watermark @WulluW
+
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
@@ -18,7 +22,7 @@ im gonna tag what art i do with my watermark @WulluW
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
 </div>
 <div align="center">
- CLICK RENTRY FOR MY GENERAL INFO
+ 
 </div>
 
 <div align="center">
@@ -36,9 +40,6 @@ im gonna tag what art i do with my watermark @WulluW
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/whack!.jpg" width="110">
 </div>
 
-<div align="center">
-  CLICK PATREON LINK FOR PONY.TOWN INFO
-</div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/TKCwi44%20-%20Imgur.jpg">
