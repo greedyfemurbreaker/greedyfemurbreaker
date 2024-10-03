@@ -10,7 +10,7 @@
 -CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!!]
 +CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
-[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/DeadOrganicAbalone-max-1mb.gif)](https://youtu.be/HFVOyGQ5hTw)
+[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/DeadOrganicAbalone-max-1mb.gif)](https://youtu.be/FfXwm3jwVbI)
  
 
 <div align="center">
