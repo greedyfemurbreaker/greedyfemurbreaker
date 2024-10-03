@@ -3,14 +3,15 @@
 
 ```diff
 + i spam follow most pony.towners
+- I AM OFFLINE ALWAYS i get overwelmed easily ( you can find me @ my spot )
++ if i dont answer a whisper (im afk)
 - i use my watermark @WulluW when i turn in a strawpage sketch
 +CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!!]
 -CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!!]
 +CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%208.jpg" width="500">
-</div>
+[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/DeadOrganicAbalone-max-1mb.gif)](https://youtu.be/HFVOyGQ5hTw)
+ 
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
@@ -103,6 +104,8 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/zLcYwF4%20-%20Imgur.gif">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/0qHnIUg%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ttr1KQJ%20-%20Imgur.png">
+
+ 
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/regular%20show.gif">
 </div>
 
