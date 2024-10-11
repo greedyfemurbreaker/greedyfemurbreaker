@@ -9,7 +9,7 @@
 + CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!!]
 - CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
-[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/Ken_Gyakuten_Saiban_OA.webp)](https://youtu.be/FfXwm3jwVbI)
+[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864753.jpg)](https://youtu.be/FfXwm3jwVbI)
  
 
 <div align="center">
@@ -29,24 +29,28 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%207.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%205.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%202.jpg" width="105">
-</div>
-<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864747.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864750.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864752.jpg" width="110">
+ <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20JERK.jpg" width="330">
 </div>
 
+
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%203.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/DOLCETTO.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20MANGA%204.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864751.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864749.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864746.jpg" width="110">
 </div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/TKCwi44%20-%20Imgur.jpg">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ZWI2ldb%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sG8QX6C%20-%20Imgur.jpg">
+</div>
+
+<div align="center">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864754.jpg" width="300">
 </div>
 
 <div align="center">
