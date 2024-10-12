@@ -9,7 +9,7 @@
 + CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!!]
 - CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
-[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864753.jpg)](https://youtu.be/FfXwm3jwVbI)
+[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-14-01-107.jpg)](https://youtu.be/FfXwm3jwVbI)
  
 
 <div align="center">
@@ -29,18 +29,18 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864747.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864750.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864752.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-53-56-247.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-56-40-469.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-55-37-481.jpg" width="110">
  <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20JERK.jpg" width="330">
 </div>
 
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864751.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864749.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864746.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-00-14-408.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-02-31-627.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-59-02-827.jpg" width="110">
 </div>
 
 <div align="center">
@@ -50,7 +50,7 @@
 </div>
 
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/4920343817840864754.jpg" width="300">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/dvorah%203.webp" width="300">
 </div>
 
 <div align="center">
