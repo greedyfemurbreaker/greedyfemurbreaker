@@ -5,8 +5,8 @@
 + i spam follow most pony.towners
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
-- CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!!]
-+ CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!!]
+- CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!! BLOOD! SLIGHT GORE! BUGS]
++ CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
 - CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
 [![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-14-01-107.jpg)](https://youtu.be/FfXwm3jwVbI)
