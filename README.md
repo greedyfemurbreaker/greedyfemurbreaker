@@ -1,29 +1,19 @@
 # GREEDYFEMURBREAKER
 # WulluW
-
+> [!CAUTION]
+> CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!! BLOOD! SLIGHT GORE! BUGS] <3
 ```diff
 + i spam follow most pony.towners
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
-- CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!! BLOOD! SLIGHT GORE! BUGS]
-+ CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
-- CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 ```
+> [!WARNING]
+> CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
+> CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 [![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-14-01-107.jpg)](https://youtu.be/FfXwm3jwVbI)
  
 
-<div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/playstation.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/supermonkeyball.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sqXsM3L%20-%20Imgur.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sega.gif">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
-</div>
+
 <div align="center">
  
 </div>
@@ -116,6 +106,18 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wowie.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SRRah2p%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/water%20stamp.gif">
+ <div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/playstation.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/supermonkeyball.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sqXsM3L%20-%20Imgur.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sega.gif">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
+</div>
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/79ea08d89034c080a5f4a339e2a98663.jpg" width="500">
 </div>
