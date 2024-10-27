@@ -1,7 +1,7 @@
 # GREEDYFEMURBREAKER
 # WulluW
 > [!CAUTION]
-> CLICK CARRD TO FIND ALL LINKS [FLASH WARNING!! BLOOD! SLIGHT GORE! BUGS] <3
+> CLICK CARRD TO FIND LINKTR.EE [FLASH WARNING!! EYESTRAIN WARNING] <3
 ```diff
 + i spam follow most pony.towners
 - if i dont answer a whisper (im afk)
