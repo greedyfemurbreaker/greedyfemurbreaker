@@ -8,9 +8,9 @@
 + i use my watermark @WulluW when i turn in a strawpage sketch
 ```
 > [!WARNING]
-> CLICK RENTRY  (IN CARRD) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
-> CLICK PATREON (IN CARRD) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
-[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-14-01-107.jpg)](https://youtu.be/FfXwm3jwVbI)
+> CLICK RENTRY  (IN LINKTR.EE) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
+> CLICK PATREON (IN LINKTR.EE) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
+[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%208.PNG)](https://youtu.be/FfXwm3jwVbI)
  
 
 
@@ -21,18 +21,21 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-53-56-247.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-56-40-469.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-55-37-481.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko.gif" width="110">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%202.gif" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%204.gif" width="110">
+ 
+</div>
  <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20JERK.jpg" width="330">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%209.PNG" width="330">
 </div>
 
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-00-14-408.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_10-02-31-627.jpg" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Picsart_24-10-12_09-59-02-827.jpg" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%207.gif" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%209.gif" width="110">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%206.gif" width="110">
+  
 </div>
 
 <div align="center">
@@ -48,7 +51,7 @@
 </div>
 
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/dvorah%203.webp" width="300">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/yumeko%207.PNG" width="300">
 </div>
 
 <div align="center">
