@@ -3,6 +3,7 @@
 > [!CAUTION]
 > CLICK CARRD TO FIND LINKTR.EE [FLASH WARNING!! EYESTRAIN WARNING] <3
 ```diff
+- MY CURRENT STATUS !!? working from home AFK fishtank mode engaged on pony.town !!! WHISP 2 INT, LEAVE A DOODLE ON MY STRAWPAGE or AN ATABOOK SIGNIN !! IF FRIEND DISCORD MESSAGE ME !!!
 + i spam follow most pony.towners
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
