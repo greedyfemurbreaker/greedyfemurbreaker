@@ -17,7 +17,7 @@
 
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-AFK%20%E2%9C%A8%20D'vorah%20%F0%9F%90%9D%20MKX-trot-blinking-fixed-padded-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-AFK%20%F0%9F%98%B5%20WORKIN%20%F0%9F%AB%A8%20IRL%20%5BAA%5D-trot-blinking-fixed-padded-4x.gif" width="140">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-THE%20GREED%20CODED%20PONY-trot-blinking-fixed-padded-4x.gif" width="140">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-%F0%9F%90%9B%20_%20Y'all%20r%20stupid%20!%20_%20%F0%9F%8D%92-trot-blinking-fixed-padded-toy268-4x.gif" width="140">
 </div>
 
@@ -41,8 +41,8 @@
 
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-i'm%20so%20misunderstood%20%F0%9F%A4%AD%20mk1-trot-blinking-fixed-padded-toy16-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-%F0%9F%99%80%20where%20is%20cheese%20%F0%9F%92%9B%20_%20sonic-trot-blinking-fixed-padded-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-%F0%9F%A4%A0%20AFK%20%F0%9F%97%BF%20GREED%20%F0%9F%90%BE-trot-blinking-fixed-padded-toy214-4x.gif" width="140">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-only%20i%20am%20holy%2C%20only%20i%20am%20hell-trot-blinking-fixed-padded-4x.gif" width="140">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-new%20person%2C%20same%20old%20mistakes-trot-blinking-fixed-padded-4x.gif" width="140">
 </div>
 
 <div align="center">
