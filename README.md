@@ -12,8 +12,12 @@
 > CLICK RENTRY  (IN LINKTR.EE) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
 > CLICK PATREON (IN LINKTR.EE) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
 [![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%206.PNG)](https://youtu.be/4b2JUJHWn50?list=PLqHRrrNYgWZwWdnECbr9zUGhSfpPRWe0i)
- 
 
+<div align="center">
+ <a href="https://visitcount.itsvg.in">
+   <img src="https://visitcount.itsvg.in/api?id=greedyfemurbreaker&label=Phonies&color=2&icon=7&pretty=false" />
+ </a>
+</div>
 
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-AFK%20%E2%9C%A8%20D'vorah%20%F0%9F%90%9D%20MKX-trot-blinking-fixed-padded-4x.gif" width="140">
