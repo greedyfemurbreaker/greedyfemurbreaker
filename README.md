@@ -8,7 +8,19 @@
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
 ```
- 
+
+ <div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/playstation.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/supermonkeyball.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sqXsM3L%20-%20Imgur.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sega.gif">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
+</div>
  
 <div align="center">
  <a href="https://visitcount.itsvg.in">
@@ -16,7 +28,13 @@
  </a>
 </div>
 
+<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Tumblr_l_56989568344858.gif" width="25">
+</div>
 
+<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2376.gif" width="315">
+</div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/TKCwi44%20-%20Imgur.jpg">
@@ -24,6 +42,9 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sG8QX6C%20-%20Imgur.jpg">
 </div>
 
+<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2381.png" width="615">
+</div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/b2168d4ee5ab7f84144b923ff359f1a3.jpg" width="615">
@@ -93,15 +114,4 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wowie.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SRRah2p%20-%20Imgur.gif">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/water%20stamp.gif">
- <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/playstation.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/supermonkeyball.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sqXsM3L%20-%20Imgur.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sega.gif">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
-</div>
+
