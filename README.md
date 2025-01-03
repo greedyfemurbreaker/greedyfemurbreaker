@@ -8,46 +8,16 @@
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
 ```
-> [!WARNING]
-> CLICK RENTRY  (IN LINKTR.EE) FOR MY GENERAL INFO [FLASH WARNING!! BLOOD!]
-> CLICK PATREON (IN LINKTR.EE) WHICH HAS MY PONY.TOWN INFO [FLASH WARNING!!]
-[![Watch the video](https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%206.PNG)](https://youtu.be/4b2JUJHWn50?list=PLqHRrrNYgWZwWdnECbr9zUGhSfpPRWe0i)
-
+<div align="center">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Tumblr_l_56904217050160.gif" width="1500">
+ 
 <div align="center">
  <a href="https://visitcount.itsvg.in">
    <img src="https://visitcount.itsvg.in/api?id=greedyfemurbreaker&label=Phonies&color=2&icon=7&pretty=false" />
  </a>
 </div>
 
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-AFK%20%E2%9C%A8%20D'vorah%20%F0%9F%90%9D%20MKX-trot-blinking-fixed-padded-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-THE%20GREED%20CODED%20PONY-trot-blinking-fixed-padded-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-%F0%9F%90%9B%20_%20Y'all%20r%20stupid%20!%20_%20%F0%9F%8D%92-trot-blinking-fixed-padded-toy268-4x.gif" width="140">
-</div>
 
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%2013.PNG" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%202.PNG" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS.PNG" width="110">
- 
-</div>
- <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/SNOWCAT.PNG" width="330">
-</div>
-
-
-<div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%2010.PNG" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%2020.PNG" width="110">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%2019.PNG" width="110">
-  
-</div>
-
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-i'm%20so%20misunderstood%20%F0%9F%A4%AD%20mk1-trot-blinking-fixed-padded-toy16-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-only%20i%20am%20holy%2C%20only%20i%20am%20hell-trot-blinking-fixed-padded-4x.gif" width="140">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pony-town-new%20person%2C%20same%20old%20mistakes-trot-blinking-fixed-padded-4x.gif" width="140">
-</div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/TKCwi44%20-%20Imgur.jpg">
@@ -55,13 +25,18 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sG8QX6C%20-%20Imgur.jpg">
 </div>
 
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/CYCLONUS%208.PNG" width="300">
-</div>
 
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/GREED%20INDEPTH.jpg" width="500">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/b2168d4ee5ab7f84144b923ff359f1a3.jpg" width="980">
 </div>
+<div align="center">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/9fc1c59fcdb15e772815e9247ea62ba4.jpg" width="350"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/28536c58ed0a9a154610bb65c4aab79c.jpg" width="300"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fa1dda85a5a7aa5d23d16e20943d3576.jpg" width="320">
+</div>
+<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/8e847c3ede310b0f9b46f8271dba5b4b.jpg" width="980">
+</div>
+
+
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.gif">
@@ -133,7 +108,4 @@
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
-</div>
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/79ea08d89034c080a5f4a339e2a98663.jpg" width="500">
 </div>
