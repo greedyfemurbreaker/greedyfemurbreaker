@@ -8,8 +8,7 @@
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
 ```
-<div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Tumblr_l_56904217050160.gif" width="1500">
+ 
  
 <div align="center">
  <a href="https://visitcount.itsvg.in">
@@ -27,13 +26,10 @@
 
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/b2168d4ee5ab7f84144b923ff359f1a3.jpg" width="980">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/b2168d4ee5ab7f84144b923ff359f1a3.jpg" width="615">
 </div>
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/9fc1c59fcdb15e772815e9247ea62ba4.jpg" width="269"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/28536c58ed0a9a154610bb65c4aab79c.jpg" width="232"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fa1dda85a5a7aa5d23d16e20943d3576.jpg" width="248">
-</div>
-<div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/8e847c3ede310b0f9b46f8271dba5b4b.jpg" width="980">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/9fc1c59fcdb15e772815e9247ea62ba4.jpg" width="218"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/28536c58ed0a9a154610bb65c4aab79c.jpg" width="188"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fa1dda85a5a7aa5d23d16e20943d3576.jpg" width="200">
 </div>
 
 
