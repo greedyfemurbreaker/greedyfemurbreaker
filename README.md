@@ -22,11 +22,6 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
 </div>
  
-<div align="center">
- <a href="https://visitcount.itsvg.in">
-   <img src="https://visitcount.itsvg.in/api?id=greedyfemurbreaker&label=Phonies&color=2&icon=7&pretty=false" />
- </a>
-</div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/Tumblr_l_56989568344858.gif" width="25">
