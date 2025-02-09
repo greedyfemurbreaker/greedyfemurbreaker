@@ -28,7 +28,7 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2376.gif" width="315">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2415.png" width="315">
 </div>
 
 <div align="center">
@@ -42,10 +42,14 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/b2168d4ee5ab7f84144b923ff359f1a3.jpg" width="615">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2369.jpeg" width="615">
+</div>
+<div align="center"> if you like the art you see click my bluesky or tumblr ( i tag i swear )
+</div>
+<div align="center">  about me ? check out my rentry,strawpage, and/or spacehey for a more in depth bio
 </div>
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/9fc1c59fcdb15e772815e9247ea62ba4.jpg" width="218"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/28536c58ed0a9a154610bb65c4aab79c.jpg" width="188"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fa1dda85a5a7aa5d23d16e20943d3576.jpg" width="200">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2508.png" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2412.png" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2400.png" width="200">
 </div>
 
 
