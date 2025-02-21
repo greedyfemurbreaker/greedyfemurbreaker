@@ -8,7 +8,7 @@
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
 ```
-file garden is down i hate everything
+
  <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
