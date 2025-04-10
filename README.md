@@ -28,7 +28,7 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2415.png" width="315">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fma%20greed%205.jpg" width="315">
 </div>
 
 <div align="center">
@@ -49,7 +49,7 @@
 <div align="center">  about me ? check out my rentry,strawpage, and/or spacehey for a more in depth bio
 </div>
 <div align="center">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2508.png" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2412.png" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/IMG_2400.png" width="200">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/aot%20reiner%20jean%20connie.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/outlast%20miles%203.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/trigun%20vashwood.jpg" width="200">
 </div>
 
 
