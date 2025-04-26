@@ -3,10 +3,12 @@
 > [!CAUTION]
 > CLICK RENTRY [FLASH WARNING!! BLOOD WARNING !! EYESTRAIN WARNING !!] <3
 ```diff
-- MY CURRENT STATUS !!? working from home AFK fishtank mode engaged on pony.town !!! WHISP 2 INT, LEAVE A DOODLE ON MY STRAWPAGE or AN ATABOOK SIGNIN !! IF FRIEND DISCORD MESSAGE ME !!!
+- MY CURRENT STATUS !!? WHISP 2 INT, LEAVE AN ATABOOK SIGNIN !! IF FRIEND DISCORD MESSAGE ME !!!
 + i spam follow most pony.towners
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
+- i struck a plea bargin in emails to the pony.dev team so now im free from 15 min afk disconnect hell !
++ currently fuck with reiner [aot] and miles upshur [outlast] if you fuck with em too hit me up
 ```
 
  <div align="center">
@@ -28,7 +30,7 @@
 </div>
 
 <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/fma%20greed%205.jpg" width="315">
+  <img src="https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreibhrlj3bpmkxu6lxjtve25qpl6mokwd2w4gdy7cgkhofb6udw6in4@jpeg" width="315">
 </div>
 
 <div align="center">
@@ -46,7 +48,7 @@
 </div>
 <div align="center"> if you like the art you see click my bluesky or tumblr ( i tag i swear )
 </div>
-<div align="center">  about me ? check out my rentry,strawpage, and/or spacehey for a more in depth bio
+<div align="center">  about me ?  check out my rentry,strawpage, and/or spacehey for a more in depth bio
 </div>
 <div align="center">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/aot%20reiner%20jean%20connie.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/outlast%20miles%203.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/trigun%20vashwood.jpg" width="200">
@@ -104,6 +106,8 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/zLcYwF4%20-%20Imgur.gif">
  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/0qHnIUg%20-%20Imgur.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/ttr1KQJ%20-%20Imgur.png">
+
+  
 
  
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/regular%20show.gif">
