@@ -8,7 +8,7 @@
 - if i dont answer a whisper (im afk)
 + i use my watermark @WulluW when i turn in a strawpage sketch
 - i struck a plea bargin in emails to the pony.dev team so now im free from 15 min afk disconnect hell !
-+ currently fuck with reiner [aot] and miles upshur [outlast] if you fuck with em too hit me up
++ currently fuck with reiner [aot], franco barbi [outlast], and miles upshur [outlast] if you fuck with em too hit me up
 ```
 
  <div align="center">
