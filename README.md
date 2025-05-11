@@ -12,16 +12,16 @@
 ```
 
  <div align="center">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/3ds.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/steam.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/gameboy.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/playstation.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/supermonkeyball.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sqXsM3L%20-%20Imgur.gif">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/sega.gif">
- <img src="https://file.garden/Zn4VyXfEdAHVeqaq/xbox.jpg">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/n64.png">
-  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/wii.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/sega.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/steam.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/playstation.gif">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/xbox.jpg">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/n64.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/wii.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/3ds.png">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/gameboy.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/supermonkeyball.png">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/i-leave-bite-marks.gif" width="95">
 </div>
  
 
