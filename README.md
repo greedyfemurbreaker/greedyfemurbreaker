@@ -23,7 +23,8 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/supermonkeyball.png">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/i-leave-bite-marks.gif" width="95">
 </div>
- 
+
+ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=WulluW&count=10)
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/vampdivider.gif" width="250">
@@ -32,8 +33,6 @@
 <div align="center">
   <img src="https://cdn.bsky.app/img/feed_thumbnail/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreiafgmtqn5t3oeisvn5xodaxmcupex7erfwqvj737koj4vuje2n3xa@jpeg" width="315">
 </div>
-
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=WulluW&count=10)
 
 <div align="center">
   <img src="https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreihq47xahmsfwf6roklf7iq2pbmzvn74ghzt4y5mv4jz4nau2d5i5m@jpeg" width="200">
