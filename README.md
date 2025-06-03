@@ -33,6 +33,8 @@
   <img src="https://cdn.bsky.app/img/feed_thumbnail/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreiafgmtqn5t3oeisvn5xodaxmcupex7erfwqvj737koj4vuje2n3xa@jpeg" width="315">
 </div>
 
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=WulluW&count=10)
+
 <div align="center">
   <img src="https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreihq47xahmsfwf6roklf7iq2pbmzvn74ghzt4y5mv4jz4nau2d5i5m@jpeg" width="200">
  <img src="https://cdn.bsky.app/img/feed_thumbnail/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreighcmtlsqsm2zzpvct6vj77atpettknzim6wccrn4f46dhbgd2ysi@jpeg" width="200">
