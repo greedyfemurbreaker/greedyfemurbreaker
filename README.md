@@ -24,7 +24,7 @@
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/i-leave-bite-marks.gif" width="95">
 </div>
 
- ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=WulluW&count=10&width=1000&show_user=header)
+ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=WulluW&count=10&width=1000&show_user=header&loved=true)
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/vampdivider.gif" width="250">
