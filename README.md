@@ -6,8 +6,7 @@
 - MY CURRENT STATUS !!? WHISP 2 INT, LEAVE AN ATABOOK SIGNIN !! IF FRIEND DISCORD MESSAGE ME !!!
 + if i dont answer a whisper (im afk)
 - i use my watermark @WulluW when i turn in a strawpage sketch
-+ i struck a plea bargin in emails to the pony.dev team so now im free from 15 min afk disconnect hell !
-- i fuck with greed [fma], reiner [aot], franco barbi [outlast], miles upshur [outlast], astarion [bg3], rolan [bg3], and orin [bg3] if you fuck with em too hit me up
++ i fuck with greed [fma], reiner [aot], franco barbi [outlast], miles upshur [outlast], astarion [bg3], rolan [bg3], and orin [bg3] if you fuck with em too hit me up
 ```
 
  <div align="center">
