@@ -33,15 +33,18 @@
 </div>
 
 <div align="center">
-  <img src="https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreihq47xahmsfwf6roklf7iq2pbmzvn74ghzt4y5mv4jz4nau2d5i5m@jpeg" width="200">
- <img src="https://cdn.bsky.app/img/feed_thumbnail/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreighcmtlsqsm2zzpvct6vj77atpettknzim6wccrn4f46dhbgd2ysi@jpeg" width="200">
-  <img src="https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:g5gdpowrvjzkx3axh5nch3fy/bafkreiaicxl636occcrhlaasxhe26jkaqcacxznjkscizanr4u5hx2jhzi@jpeg" width="200">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/IMG_3039.png" width="200">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/IMG_3050.png" width="200">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/IMG_3037.png" width="200">
 </div>
 
 <div align="center">
   <img src="https://file.garden/Zn4VyXfEdAHVeqaq/pixels/Tumblr_l_56712078660918.gif" width="615">
 </div>
 <div align="center"> if you like the art you see click my bluesky or tumblr ( i tag i swear )
+</div>
+<div align="center">
+  <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/IMG_2381.png" width="615">
 </div>
 <div align="center">  about me ?  check out my rentry,strawpage, and/or spacehey for a more in depth bio
 </div>
@@ -51,7 +54,7 @@
 
 
 <div align="center">
- <img src="https://64.media.tumblr.com/bb1f8b45ae2c545673e28f6f389797cc/917b6385ee3ec77e-1f/s1280x1920/6972f9cd52a7b90b02eb0af299003d3036b40626.pnj" width="200"> <img src="https://64.media.tumblr.com/b4440628ccca21becb173e792a99f989/48939d5a6b3a5d33-4b/s1280x1920/f606ceb2dc6510cc4722c82406573939d245aa5e.pnj" width="200"> <img src="https://64.media.tumblr.com/b11663ffdba2be6b5e276ce32d331e97/cb720683897f517d-6a/s640x960/fe048811278bfefa0de33df1b34d3a7b3bb7b361.pnj" width="200">
+ <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/trigun%20vashwood.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/aot%20reiner%20jean%20connie.jpg" width="200"> <img src="https://file.garden/Zn4VyXfEdAHVeqaq/art/IMG_1645.png" width="200">
 </div>
 
 
