@@ -1,12 +1,11 @@
-# GREEDYFEMURBREAKER
-# WulluW
+
 > [!CAUTION]
 > CLICK RENTRY [FLASH WARNING!! BLOOD WARNING !! EYESTRAIN WARNING !!] <3
 ```diff
 - MY CURRENT STATUS !!? WHISP 2 INT, LEAVE AN ATABOOK SIGNIN !! IF FRIEND DISCORD MESSAGE ME !!!
 + if i dont answer a whisper (im afk)
-- i use my watermark @WulluW when i turn in a strawpage sketch
-+ i fuck with greed [fma], reiner [aot], franco barbi [outlast], miles upshur [outlast], astarion [bg3], rolan [bg3], and orin [bg3] if you fuck with em too hit me up
+- i fuck with greed [fma], reiner [aot], franco barbi [outlast], miles upshur [outlast], rolan [bg3]
+
 ```
 
  <div align="center">
